@@ -1,0 +1,2 @@
+# abex
+YAA MANA SAYA TAU (EMOT BATU)
